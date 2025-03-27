@@ -11,6 +11,6 @@ hacer la simultaniedad con la tecnicatura en programacion.
 ### Otra Información
 - me gusta el futbol 
 - los videojuegos 
-- el ambiento academico 
+- el ambiente academico 
 - la programacion, a pesar que aveces sea media compleja
 
